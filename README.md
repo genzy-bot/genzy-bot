@@ -1,0 +1,2 @@
+- 👋 Hi, I’m deploy bot @genzy-bot 🐺
+- 👀 I’m interested in GENZY ($GNZ)
